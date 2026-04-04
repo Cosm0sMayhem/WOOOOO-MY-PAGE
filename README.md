@@ -3,6 +3,8 @@
 
 # $\color{#D3A100}{\textsf{Telamon / Admin / Deity . Fictive}}$
 
+# $\color{#D3A100}{\textsf{Bleeeeehhhh lazyyy}}$
+
 
 # <img width="1185" height="284" alt="tumblr_59959034918eba90cdbd8d6d00564882_a02ffc82_1280" src="https://github.com/user-attachments/assets/f231db19-811f-4059-88e8-c465916b6ce1" />
 
